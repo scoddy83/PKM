@@ -1,0 +1,1 @@
+In der zweiten Woche lernten Dich Astrid und ich immer mehr kennen und wir wurden bei den täglichen Handgriffen immer wie geübter. Am Dienstag stand auch schon der zweite Hebamme Besuch an und du wurdest gewogen. Mit Freude stellten wir fest, dass Du mit ca. 3700g schon über dem Geburtsgewicht liegst und somit prächtig wächst und gedeihst.
